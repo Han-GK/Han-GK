@@ -7,4 +7,4 @@
 - [🌱CSDN主页]( https://blog.csdn.net/Hgk666 "haicoder")
 - [🎵网抑云音乐]( https://music.163.com/#/user/home?id=420551809 "haicoder")
 - [🐧加我QQ]( https://wpa.qq.com/wpa_jump_page?v=3&site=qq&menu=yes&uin=2663968138 "haicoder")
-- <img src="https://media.giphy.com/media/12oufCB0MyZ1Go/giphy.gif" width="50"><img src="https://media.giphy.com/media/12oufCB0MyZ1Go/giphy.gif" width="50"><img src="https://media.giphy.com/media/12oufCB0MyZ1Go/giphy.gif" width="50"><img src="https://media.giphy.com/media/12oufCB0MyZ1Go/giphy.gif" width="50"><img src="https://media.giphy.com/media/12oufCB0MyZ1Go/giphy.gif" width="50"><img src="https://media.giphy.com/media/12oufCB0MyZ1Go/giphy.gif" width="50">
+<img src="https://media.giphy.com/media/12oufCB0MyZ1Go/giphy.gif" width="50"><img src="https://media.giphy.com/media/12oufCB0MyZ1Go/giphy.gif" width="50"><img src="https://media.giphy.com/media/12oufCB0MyZ1Go/giphy.gif" width="50"><img src="https://media.giphy.com/media/12oufCB0MyZ1Go/giphy.gif" width="50"><img src="https://media.giphy.com/media/12oufCB0MyZ1Go/giphy.gif" width="50"><img src="https://media.giphy.com/media/12oufCB0MyZ1Go/giphy.gif" width="50">
